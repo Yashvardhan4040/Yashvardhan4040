@@ -16,6 +16,7 @@
 - 📄 Check my resume- [https://salmon-valina-49.tiiny.site](https://salmon-valina-49.tiiny.site)
 
 - ⚡ Fun fact: **I am an Air-Force Brat.**
+- 🎖️ Hobbies and Interests:Music,Gaming,Podcasting
 
 <br>
 <br>
