@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **vardhanyash00728@gmail.com**
 
-- 📄 Check my resume- [https://salmon-valina-49.tiiny.site](https://salmon-valina-49.tiiny.site)
+- 📄 Check my resume- [https://drive.google.com/file/d/1pIVr7YdVUuriQg7DPPw_pJqkrehz_Z2c/view?usp=sharing)
 
 - ⚡ Fun fact: **I am an Air-Force Brat.**
 - 🎖️ Hobbies and Interests: Music , Gaming , Podcasting and Coding.
