@@ -15,7 +15,7 @@
 
 - ➡️ My LinkedIn-https://www.linkedin.com/in/yashvardhan-singh-a677ab28a/
 
-- 📄 Check my resume- [https://drive.google.com/file/d/1pIVr7YdVUuriQg7DPPw_pJqkrehz_Z2c/view?usp=sharing)
+- 📄 Check my resume- https://drive.google.com/file/d/1RXYQtoDOIGDcyt-6Aq3mwkDlgd--YiSr/view?usp=sharing
 
 - 👨‍💻 Check my LeetCode-https://leetcode.com/u/Yash_Vardhan4444/
 
